@@ -9,7 +9,7 @@
 
 - 📫 Você me acha através do E-mail **marianascimento29@yahoo.com**
 
-- 📄 Conheça minhas experiências [https://www.linkedin.com/in/maria-lorrana-a633191b2?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/maria-lorrana)
+- 📄 Conheça minhas experiências [https://www.linkedin.com/in/maria-lorrana](https://www.linkedin.com/in/maria-lorrana)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
